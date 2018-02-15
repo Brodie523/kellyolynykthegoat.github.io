@@ -1,1 +1,0 @@
-# kellyolynykthegoat.github.io
